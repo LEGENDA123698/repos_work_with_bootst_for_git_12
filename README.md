@@ -1,0 +1,1 @@
+# repos_work_with_bootst_for_git_12
